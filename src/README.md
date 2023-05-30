@@ -12,4 +12,4 @@ Throughout the book, we'll also address some of the common challenges to buildin
 
 Whether you're a manager looking to build a more resilient team, or an individual looking to enhance your own resilience skills and mindset, this book has something for you. So let's get started on the journey to building greater resilience and thriving in the face of adversity.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
