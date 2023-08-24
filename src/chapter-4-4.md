@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-=============================================================================
 
 Limiting beliefs can be a major obstacle to developing resilience in the workplace. These beliefs are negative thoughts or ideas that individuals hold about themselves, their abilities, or their circumstances, which can prevent them from taking risks or pursuing new opportunities. This chapter will explore the power of resilience and strategies for addressing limiting beliefs to build resilience.
 

@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of Resilience
-===========================================
 
 Building resilience in the workplace is not just an individual effort but a collective one. In this chapter, we will explore different strategies for creating a culture of resilience within organizations.
 

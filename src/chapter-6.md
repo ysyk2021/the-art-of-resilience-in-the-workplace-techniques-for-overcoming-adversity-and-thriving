@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Resilience Skills
-============================================
 
 Developing resilience skills is critical for individuals who want to thrive in the workplace and overcome challenges. In this chapter, we will explore the principles of effective resilience, strategies for overcoming adversity and thriving in a changing environment, utilizing feedback and coaching, and fostering continuous learning and improvement.
 

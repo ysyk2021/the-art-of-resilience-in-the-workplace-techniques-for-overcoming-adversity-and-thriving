@@ -1,5 +1,3 @@
-Encouraging Proactive Resilience Across the Organization
-=====================================================================================================
 
 Building resilience is not just an individual responsibility, but also a collective one. In order to create a more resilient organization, it is important to encourage proactive resilience across the organization. This chapter will explore different strategies for fostering a culture of resilience in the workplace.
 

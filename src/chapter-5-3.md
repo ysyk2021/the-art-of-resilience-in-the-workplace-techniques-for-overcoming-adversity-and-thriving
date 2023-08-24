@@ -1,5 +1,3 @@
-Communicating Effectively
-=======================================================================
 
 Effective communication is an essential skill for building resilience in the workplace. It helps individuals to build strong relationships with colleagues, clients, and customers, and enhances their ability to adapt to change and overcome adversity. In this chapter, we will discuss how individuals can maximize their resilience skills by communicating effectively.
 

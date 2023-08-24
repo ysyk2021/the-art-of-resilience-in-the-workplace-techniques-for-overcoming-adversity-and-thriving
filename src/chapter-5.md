@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Resilience Skills
-============================================
 
 In order to thrive in a changing workplace environment, it is essential to develop and maximize your resilience skills. In this chapter, we will explore strategies for identifying opportunities to build resilience, developing those skills, and communicating effectively and building trust.
 

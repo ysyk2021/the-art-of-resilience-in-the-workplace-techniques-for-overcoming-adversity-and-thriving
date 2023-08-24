@@ -1,5 +1,3 @@
-Identifying Resilience Technologies and Resources
-==================================================================================================
 
 In order to maximize the potential of technology for building resilience in the workplace, it is important to focus on identifying the most effective technologies and resources. In this chapter, we will explore strategies for identifying and evaluating resilience technologies and resources, with a focus on practical tools and techniques that can be used by individuals and organizations alike.
 

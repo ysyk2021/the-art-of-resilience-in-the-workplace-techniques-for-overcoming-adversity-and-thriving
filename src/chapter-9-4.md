@@ -1,5 +1,3 @@
-Avoiding Information Overload
-==============================================================================
 
 In today's digital age, technology plays an increasingly important role in the workplace. While technology has the potential to make us more productive and efficient, it can also lead to information overload and decreased resilience. In this chapter, we will explore strategies for leveraging technology for resilience and avoiding information overload.
 

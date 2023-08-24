@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-=================================================================================
 
 Developing a resilient mindset is critical for success in the workplace. One key element of resilience is setting realistic goals and objectives that are aligned with personal and organizational values, priorities, and resources. This chapter will explore strategies for setting realistic goals and objectives, and how doing so can contribute to a more resilient mindset.
 

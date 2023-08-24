@@ -1,5 +1,3 @@
-Using Technology to Enhance Your Resilience Experience
-=======================================================================================================
 
 In today's workplace, technology plays an increasingly important role in building resilience and managing change. In this chapter, we will explore strategies for leveraging technology to enhance your resilience experience and maximize your ability to adapt to new situations.
 

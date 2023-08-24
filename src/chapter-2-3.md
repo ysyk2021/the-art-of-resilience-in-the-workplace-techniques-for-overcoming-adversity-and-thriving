@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Resilience
-==============================================================================
 
 To develop resilience in the workplace, it is essential to assess your current approach to resilience. Understanding your strengths and weaknesses can help you identify areas for improvement and develop a personalized plan for building resilience. In this chapter, we will explore how to assess your personal approach to resilience.
 

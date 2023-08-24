@@ -1,5 +1,3 @@
-Common Misconceptions About Resilience
-===============================================================
 
 Resilience is an important skill that can help individuals thrive in the workplace and overcome adversity. However, there are many misconceptions about resilience that can prevent individuals from developing this critical skill. In this chapter, we will explore some of the most common misconceptions about resilience.
 

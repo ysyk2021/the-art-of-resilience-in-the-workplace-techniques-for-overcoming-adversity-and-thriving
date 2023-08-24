@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 In order to continue developing resilience in the workplace, it is important to track progress, reflect on experiences, and continuously learn and improve. This chapter will explore different strategies for measuring results and learning from experience.
 

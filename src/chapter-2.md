@@ -1,5 +1,3 @@
-Chapter 2: Defining Resilience
-==============================
 
 Overview of Resilience
 ----------------------

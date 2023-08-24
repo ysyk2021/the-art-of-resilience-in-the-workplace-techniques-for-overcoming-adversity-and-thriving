@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Resilience
-===============================================
 
 Technology can be a powerful tool for building resilience in the workplace. In this chapter, we will explore different strategies for leveraging technology as a means for enhancing resilience.
 

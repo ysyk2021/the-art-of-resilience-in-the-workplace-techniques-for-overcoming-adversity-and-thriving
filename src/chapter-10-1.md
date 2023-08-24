@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 Achieving resilience in the workplace requires ongoing effort and a commitment to continuous improvement. One way to ensure that progress is being made and identify areas for improvement is by tracking progress and measuring results. This chapter will outline the importance of measuring results and offer some best practices for doing so effectively.
 

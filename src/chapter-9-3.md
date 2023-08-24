@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-========================================================================================
 
 In the modern workplace, technology plays an increasingly important role in fostering resilience and overcoming adversity. However, for technology to be a truly effective tool for building resilience, it must also be accessible and inclusive for all individuals, regardless of their background or ability.
 

@@ -1,5 +1,3 @@
-Developing Empathy and Compassion through Resilience
-===============================================================================================
 
 Developing a resilient mindset is essential for overcoming adversity and thriving in a changing workplace environment. In this chapter, we will discuss the importance of developing empathy and compassion as part of a resilient mindset and provide practical tools and strategies for doing so.
 
@@ -59,5 +57,4 @@ Conclusion
 ----------
 
 Developing empathy and compassion as part of a resilient mindset is essential for thriving in a changing workplace environment. By practicing active listening, putting yourself in another's shoes, showing empathy, practicing self-compassion, engaging in acts of kindness, building strong relationships, focusing on shared goals, and encouraging open communication, you can develop a resilient mindset that incorporates empathy and compassion into your work.
-
 

@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-=========================================================================================
 
 A resilient mindset is essential for thriving in a changing workplace. By utilizing positive self-talk and visualization, individuals can build the mental toughness they need to overcome challenges, manage stress, and achieve long-term success. This chapter will explore strategies for developing a resilient mindset through positive self-talk and visualization.
 

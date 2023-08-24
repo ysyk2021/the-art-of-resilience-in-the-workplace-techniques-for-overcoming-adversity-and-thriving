@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-=============================================================================
 
 Developing resilience is a lifelong process that requires ongoing effort and practice. Effective feedback and coaching can play an important role in helping individuals build resilience and develop a mindset that allows them to thrive in the face of adversity and change. This chapter will explore strategies for utilizing feedback and coaching to develop resilience skills in the workplace.
 

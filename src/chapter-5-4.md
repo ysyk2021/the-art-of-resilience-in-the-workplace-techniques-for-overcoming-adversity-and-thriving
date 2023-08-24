@@ -1,5 +1,3 @@
-Fostering Trust and Respect
-=========================================================================
 
 Maximizing your resilience skills means fostering trust and respect in the workplace. When employees feel valued, supported, and respected, they are better equipped to overcome adversity and thrive in a changing environment. In this chapter, we will discuss strategies for maximizing your resilience skills through building trust and respect.
 

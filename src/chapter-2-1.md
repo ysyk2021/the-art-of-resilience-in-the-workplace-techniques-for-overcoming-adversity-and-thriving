@@ -1,5 +1,3 @@
-Overview of Resilience
-======================================================
 
 Resilience is the ability to adapt and thrive in the face of adversity and uncertainty. In the workplace, resilience is becoming an essential skill as organizations face continuous challenges and changes. In this chapter, we will define resilience and provide an overview of its importance in the workplace.
 

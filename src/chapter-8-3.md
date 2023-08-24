@@ -1,5 +1,3 @@
-Fostering Knowledge Sharing and Mentorship
-=======================================================================================
 
 Creating a culture of resilience is critical for organizations that want to thrive in a constantly evolving world. In this chapter, we will explore the importance of fostering knowledge sharing and mentorship in creating a culture of resilience in the workplace.
 

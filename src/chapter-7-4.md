@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-========================================================================
 
 While developing resilience is crucial for success in the workplace, individuals and organizations may encounter resistance to change or skepticism about the benefits of resilience. To overcome this resistance, it's essential to foster a growth mindset that emphasizes the potential for personal and organizational growth. This chapter will explore strategies for fostering a growth mindset and overcoming resistance to resilience.
 

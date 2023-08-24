@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Adversity and Thriving in a Changing Environment
-===================================================================================================================================
 
 Resilience is a critical skill for thriving in a rapidly changing workplace. By developing strategies for overcoming adversity, individuals can build the resilience skills they need to adapt to new situations, overcome challenges, and achieve long-term success. This chapter will explore strategies for developing resilience skills that can help individuals thrive in a changing environment.
 

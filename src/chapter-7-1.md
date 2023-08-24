@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Resilience
-====================================================================================================
 
 While developing resilience is critical for success in the workplace, it is not always easy. Many individuals and organizations may encounter resistance to resilience-building efforts, either from within or from external sources. This chapter will explore some common sources of resistance to resilience-building, and offer strategies for managing this resistance effectively.
 

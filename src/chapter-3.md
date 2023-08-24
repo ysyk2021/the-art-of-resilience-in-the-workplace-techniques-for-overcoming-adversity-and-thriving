@@ -1,5 +1,3 @@
-Chapter 3: Developing a Resilient Mindset
-=========================================
 
 In order to thrive in a changing environment, it is essential to develop a resilient mindset. In this chapter, we will explore techniques for cultivating a resilient mindset, including positive self-talk, visualization, setting realistic goals and objectives, and developing empathy and compassion.
 

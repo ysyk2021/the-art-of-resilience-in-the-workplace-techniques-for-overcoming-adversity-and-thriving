@@ -1,5 +1,3 @@
-Continuous Learning and Improvement
-===============================================================================================
 
 Continuous learning and improvement are essential components of building resilience in the workplace. In order to stay resilient, individuals and organizations must be committed to ongoing growth and development. This chapter will explore different strategies for continuously learning and improving as a means for staying resilient in a changing environment.
 

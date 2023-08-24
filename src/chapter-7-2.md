@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-=============================================================================================
 
 Despite the many benefits of resilience in the workplace, individuals and organizations may face resistance when it comes to developing a resilient mindset. This resistance may manifest as skepticism, fear, or other forms of resistance to change. This chapter will explore strategies for managing resistance to resilience and overcoming obstacles to building a resilient mindset.
 

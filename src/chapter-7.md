@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Resilience
-============================================
 
 Resistance to resilience is a common barrier that individuals and organizations may face when trying to build the skills necessary to thrive in a constantly evolving world. In this chapter, we will explore common sources of resistance to resilience, strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 

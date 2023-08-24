@@ -1,5 +1,3 @@
-Reflection and Self-Evaluation
-==========================================================================================
 
 Resilience-building is an ongoing process that requires regular reflection and self-evaluation. This chapter will outline the importance of reflection and self-evaluation in building resilience in the workplace, and offer some best practices for doing so effectively.
 

@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-================================================================================================
 
 Building resilience in the workplace requires continuous learning and adaptation. In order to stay resilient, individuals and organizations must measure their progress and learn from their experiences. This chapter will explore different strategies for measuring results and learning from experience as a means for adapting to changes in the workplace.
 

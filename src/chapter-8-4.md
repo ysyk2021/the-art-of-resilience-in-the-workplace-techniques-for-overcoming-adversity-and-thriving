@@ -1,5 +1,3 @@
-Celebrating Resilience-Based Achievements
-======================================================================================
 
 Building a culture of resilience is critical for organizations that want to thrive in a constantly evolving world. In this chapter, we will explore the importance of celebrating resilience-based achievements and developing a culture of resilience within the workplace.
 

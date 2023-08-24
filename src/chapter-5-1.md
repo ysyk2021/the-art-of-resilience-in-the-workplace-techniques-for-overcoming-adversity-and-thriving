@@ -1,5 +1,3 @@
-Identifying Opportunities for Building Resilience
-===============================================================================================
 
 Building resilience is a process that requires ongoing effort and practice. By identifying opportunities for building resilience, individuals can maximize their resilience skills and develop a mindset that allows them to thrive in the face of adversity and change. This chapter will explore strategies for identifying opportunities for building resilience in the workplace.
 
