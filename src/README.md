@@ -1,5 +1,4 @@
 
-
 Resilience is an essential skill for navigating the challenges of the modern workplace. In today's fast-paced and constantly changing business environment, the ability to adapt, recover, and thrive in the face of adversity is more important than ever.
 
 But what exactly is resilience, and how can we cultivate it in ourselves and our teams? At its core, resilience is the ability to bounce back from setbacks, stay focused on our goals, and maintain our motivation and sense of purpose even when things get tough.
