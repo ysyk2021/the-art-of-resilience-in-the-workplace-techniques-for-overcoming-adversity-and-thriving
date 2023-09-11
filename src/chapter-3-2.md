@@ -1,5 +1,4 @@
-Chapter 6: Utilizing Positive Self-Talk and Visualization
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the powerful techniques of positive self-talk and visualization. These practices can significantly impact resilience by shaping our mindset, increasing self-confidence, and enhancing performance. By harnessing the power of our thoughts and imagination, individuals can cultivate a resilient mindset and overcome challenges more effectively. This chapter will provide practical strategies and insights to empower readers in utilizing positive self-talk and visualization for building resilience.
 

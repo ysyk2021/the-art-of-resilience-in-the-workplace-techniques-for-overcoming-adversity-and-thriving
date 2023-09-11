@@ -1,5 +1,4 @@
-Chapter 6: Utilizing Feedback and Coaching
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the importance of utilizing feedback and coaching to foster resilience. Feedback and coaching are powerful tools that enable individuals to grow, develop skills, and enhance their resilience in the face of challenges. This chapter will provide insights on how to effectively utilize feedback and coaching to build resilience within yourself and your team.
 

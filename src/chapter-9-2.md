@@ -1,5 +1,4 @@
-Chapter 11: Using Technology to Enhance Your Resilience Experience
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the transformative role of technology in enhancing resilience. In today's digital era, technology offers numerous tools and resources that can support individuals in building resilience, adapting to change, and thriving in the workplace. This chapter provides practical insights and strategies on how to leverage technology effectively to enhance your resilience experience.
 

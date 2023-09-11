@@ -1,5 +1,4 @@
-Chapter 9: Fostering Knowledge Sharing and Mentorship
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the importance of fostering knowledge sharing and mentorship as essential components of building resilience. Creating a culture that values and encourages the exchange of knowledge, experiences, and guidance promotes individual and collective growth. This chapter provides practical strategies and insights on how to foster knowledge sharing and mentorship to enhance resilience in the workplace.
 

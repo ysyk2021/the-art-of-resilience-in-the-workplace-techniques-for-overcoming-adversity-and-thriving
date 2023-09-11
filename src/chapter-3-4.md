@@ -1,5 +1,4 @@
-Chapter 7: Developing Empathy and Compassion through Resilience
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the important role of empathy and compassion in developing resilience. Empathy allows individuals to understand and share the feelings of others, while compassion drives them to take action and provide support. By cultivating these qualities, individuals can enhance their resilience, build stronger relationships, and create a more supportive work environment. This chapter will provide practical strategies and insights to empower readers in developing empathy and compassion through resilience.
 

@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Cultivating a Resilient Mindset
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore various techniques for cultivating a resilient mindset. A resilient mindset is essential for navigating challenges, adapting to change, and thriving in the workplace. By developing specific strategies and practices, individuals can strengthen their resilience and approach difficulties with a positive and empowered outlook. This chapter will provide practical insights and techniques to empower readers in cultivating a resilient mindset.
 

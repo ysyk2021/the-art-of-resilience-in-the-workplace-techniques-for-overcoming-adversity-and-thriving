@@ -1,5 +1,4 @@
-Chapter 4: Developing Strategies for Overcoming Adversity and Thriving in a Changing Environment
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the importance of developing strategies to overcome adversity and thrive in a changing environment. In today's dynamic workplace, resilience is a valuable skill that enables individuals and organizations to navigate challenges and embrace change effectively. This chapter will provide insights and practical techniques for developing strategies that foster resilience and promote thriving in the face of adversity.
 

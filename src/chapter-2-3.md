@@ -1,5 +1,4 @@
-Chapter 3: Assessing Your Personal Approach to Resilience
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the importance of assessing your personal approach to resilience. Understanding your current level of resilience and identifying areas for improvement is crucial for building a solid foundation for growth and development. This chapter will guide you through a self-assessment process to evaluate your resilience and provide insights into areas where you can enhance your ability to overcome adversity and thrive in a changing workplace.
 

@@ -1,5 +1,4 @@
-Chapter 2: The Benefits of Focusing on Resilience
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the numerous benefits of focusing on resilience. Resilience is a valuable skill that empowers individuals and organizations to navigate challenges, adapt to change, and thrive in the face of adversity. This chapter will highlight the advantages of prioritizing resilience in the workplace and how it contributes to personal and professional growth.
 

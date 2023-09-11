@@ -1,5 +1,4 @@
-Chapter 10: Avoiding Information Overload
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the importance of avoiding information overload for building resilience. In today's digital age, we have access to an abundance of information, which can often be overwhelming and detrimental to our well-being and productivity. By understanding how to manage and filter information effectively, individuals can maintain focus, make informed decisions, and preserve their resilience in the face of information overload. This chapter provides practical strategies and techniques to empower readers in navigating the information landscape and cultivating resilience.
 

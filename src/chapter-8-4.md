@@ -1,5 +1,4 @@
-Chapter 6: Celebrating Resilience-Based Achievements
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the importance of celebrating resilience-based achievements. Acknowledging and celebrating our successes and milestones is crucial for fostering resilience, boosting motivation, and maintaining a positive mindset. This chapter provides practical strategies and insights on how to recognize and celebrate achievements that stem from resilience in the workplace.
 

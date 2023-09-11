@@ -1,5 +1,4 @@
-Chapter 1: Overview of Resilience
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the concept of resilience and its significance in the workplace. Resilience is an essential skill that enables individuals to adapt, bounce back from setbacks, and thrive in the face of adversity. This chapter will provide an overview of resilience, including its definition, key characteristics, and the importance of developing resilience in the dynamic modern workplace.
 

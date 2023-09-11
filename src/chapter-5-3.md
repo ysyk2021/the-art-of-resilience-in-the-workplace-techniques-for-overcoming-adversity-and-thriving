@@ -1,5 +1,4 @@
-Chapter 9: Communicating Effectively
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the importance of effective communication in building resilience. Effective communication plays a vital role in navigating challenges, fostering collaboration, and maintaining positive relationships in the workplace. This chapter will provide strategies and techniques for enhancing communication skills, empowering readers to communicate effectively and build resilience in a changing environment.
 

@@ -1,5 +1,4 @@
-Chapter 8: Fostering Continuous Learning and Improvement
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the importance of fostering continuous learning and improvement for building resilience. In today's rapidly changing workplace, resilience relies on the ability to adapt, grow, and continuously improve. This chapter will provide insights and practical strategies for creating a culture of continuous learning and improvement that enhances resilience.
 

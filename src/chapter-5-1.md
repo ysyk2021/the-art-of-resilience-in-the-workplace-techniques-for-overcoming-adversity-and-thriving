@@ -1,5 +1,4 @@
-Chapter 4: Identifying Opportunities for Building Resilience
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the importance of identifying opportunities for building resilience. While challenges and adversities may seem overwhelming, they also present valuable opportunities for personal and professional growth. By recognizing these opportunities, individuals can proactively develop their resilience and cultivate the skills needed to thrive in a dynamic work environment. This chapter will provide practical strategies and insights to empower readers in identifying opportunities for building resilience.
 

@@ -1,5 +1,4 @@
-Chapter 12: Encouraging Proactive Resilience Across the Organization
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the significance of encouraging proactive resilience across the organization. Proactive resilience involves taking proactive steps to anticipate, prepare for, and adapt to challenges before they arise. This chapter provides practical strategies and insights on how organizations can foster a culture of proactive resilience that empowers individuals to navigate uncertainties and thrive in dynamic environments.
 

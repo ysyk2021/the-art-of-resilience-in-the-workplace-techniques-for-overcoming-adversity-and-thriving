@@ -1,5 +1,4 @@
-Chapter 7: Addressing Limiting Beliefs
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the topic of addressing limiting beliefs. Limiting beliefs are deeply ingrained thoughts or perceptions that hold individuals back from reaching their full potential and hinder their ability to bounce back from challenges. By identifying and challenging these beliefs, individuals can develop a resilient mindset and overcome obstacles with greater ease. This chapter will provide strategies and techniques for recognizing and addressing limiting beliefs, empowering readers to cultivate resilience in the face of adversity.
 

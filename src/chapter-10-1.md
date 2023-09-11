@@ -1,5 +1,4 @@
-Chapter 9: Tracking Progress and Measuring Results
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the significance of tracking progress and measuring results for building resilience. To effectively navigate challenges and achieve success, it is crucial to have a clear understanding of our progress and the impact of our efforts. By implementing strategies to track progress and measure results, individuals can enhance their resilience, stay motivated, and make informed decisions. This chapter provides practical techniques and insights to empower readers in harnessing the power of progress tracking and result measurement.
 

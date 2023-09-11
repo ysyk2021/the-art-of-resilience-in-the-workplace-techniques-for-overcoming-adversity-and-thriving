@@ -1,5 +1,4 @@
-Chapter 8: Fostering Accessibility and Inclusivity
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore the importance of fostering accessibility and inclusivity for building resilience. Creating an environment that values and embraces diversity is crucial for individuals to thrive in the workplace. By promoting accessibility and inclusivity, organizations can empower individuals to overcome adversity, leverage their unique strengths, and build resilience collectively. This chapter provides practical strategies and insights on fostering accessibility and inclusivity to enhance resilience.
 

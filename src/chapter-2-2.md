@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Science behind Resilience
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will delve into the science behind resilience. Understanding the underlying mechanisms and processes that contribute to resilience can provide valuable insights into how individuals can cultivate and strengthen their ability to bounce back from setbacks and thrive in a changing workplace. This chapter will explore the psychological and neurological aspects of resilience, highlighting the scientific research that supports its development.
 

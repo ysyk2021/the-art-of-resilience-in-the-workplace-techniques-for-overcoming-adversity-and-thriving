@@ -1,5 +1,4 @@
-Chapter 5: Finding Ways to Develop Your Resilience
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Resilience in the Workplace: Techniques for Overcoming Adversity and Thriving in a Changing Environment," we will explore various strategies for developing resilience. Resilience is not just an innate trait but a skill that can be cultivated and strengthened over time. By actively engaging in specific practices and adopting a growth mindset, individuals can enhance their ability to bounce back from challenges and thrive in a changing workplace. This chapter will provide practical techniques and insights to empower readers in developing their resilience.
 
